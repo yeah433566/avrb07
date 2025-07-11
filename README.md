@@ -27,6 +27,6 @@
 结语  
 通过选择高质量的平台观看日本AV资源，用户不仅能享受高清的播放效果，还能确保数据和隐私的安全。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/yeah433566/avrb07 )</span>
 
 
